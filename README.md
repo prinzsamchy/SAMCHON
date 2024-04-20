@@ -1,0 +1,2 @@
+# SAMCHON
+FOR FUN
